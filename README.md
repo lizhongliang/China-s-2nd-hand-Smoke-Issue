@@ -1,4 +1,4 @@
-# China-s-2nd-hand-Smoke-Issue
+# China's Second-hand Smoke Issue
 The thorny issue of 2nd-hand smoke is still out of control in China after so many years. Why and how must we put an end to it?
 
 ## Best practices
